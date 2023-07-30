@@ -1,0 +1,1 @@
+# Few info about coding
